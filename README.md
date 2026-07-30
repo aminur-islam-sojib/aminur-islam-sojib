@@ -27,7 +27,7 @@ Feel free to reach out to me or connect with me on [LinkedIn](https://www.linked
 You can also find me on:
 
 - **Email**: mdaminurislamsojib2006@gmail.com
-- **Linkedin**: [Click Here](https://www.linkedin.com/in/ahmedsojib/)
+- **Linkedin**: [Click Here](https://www.linkedin.com/in/aminur-islam-sojib/)
 - **Facebook** : [Click Here](https://www.facebook.com/sojibahmedev)
 
 Let's connect and discuss exciting opportunities!
